@@ -1,5 +1,7 @@
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&weight=500&size=30&pause=1000&color=F7931E&width=435&lines=ʜᴇʟʟᴏ%2C+ɪ'ᴍ+ʀᴜᴅʀᴀ+sᴀᴡᴀɴᴛ)](https://git.io/typing-svg)
-      
+![](https://i.imgur.com/waxVImv.png)
+
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=30&pause=1000&color=F7931E&width=438&height=55&lines=%CA%9C%E1%B4%87%CA%9F%CA%9F%E1%B4%8F%2C+%C9%AA'%E1%B4%8D+%CA%80%E1%B4%9C%E1%B4%85%CA%80%E1%B4%80+s%E1%B4%80%E1%B4%A1%E1%B4%80%C9%B4%E1%B4%9B)](https://git.io/typing-svg)
+
 # 💫 𝑨𝒃𝒐𝒖𝒕 𝑴𝒆:
 🔭 𝑰’𝒎 𝒄𝒖𝒓𝒓𝒆𝒏𝒕𝒍𝒚 𝒘𝒐𝒓𝒌𝒊𝒏𝒈 𝒐𝒏 𝑴𝑳/𝑫𝑳 𝒑𝒓𝒐𝒋𝒆𝒄𝒕𝒔.<br>
 👯 𝑰’𝒎 𝒍𝒐𝒐𝒌𝒊𝒏𝒈 𝒕𝒐 𝒄𝒐𝒍𝒍𝒂𝒃𝒐𝒓𝒂𝒕𝒆 𝒐𝒏 𝑨𝑰, 𝒂𝒖𝒕𝒐𝒎𝒂𝒕𝒊𝒐𝒏, 𝒂𝒏𝒅 𝒐𝒑𝒆𝒏-𝒔𝒐𝒖𝒓𝒄𝒆 𝒕𝒐𝒐𝒍𝒔.<br>
